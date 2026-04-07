@@ -1,3 +1,3 @@
 #historia colaborativa 
 
-Había un avez un robot que quería aprender  a cocinar...
+Había una vez un gallo que lo estaban preparando para ser un gallo de pelea
