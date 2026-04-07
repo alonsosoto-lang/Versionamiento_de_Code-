@@ -1,11 +1,2 @@
-#historia colaborativa 
-
-Había un avez un robot que quería aprender  a cocinar...
-
-
-
-
-
-
 
 El gallo estaba siguiendo preparandose para pelear contra su rival sin embargo todo esto lo sentía muy efímero como que no lo encontraba proposito a lo que estaba haciendo con su vida, simplemente no sentía que este fuera su camino, lo que el debería de hacer con su vida, ahí fue cuando conocío a Gastela, Gastela le hizo saber que el mundo de pelea entre gallos no era todo en la vida sino que se sentía con más proposito en la vida que simplemente estar peleando sentía que le pertencecía el hehco de amar, entregarse a aguien y no unicamente al deporte, Gastela cambió su forma de ver al mundo, aún así fue a palear contra Javier, terminó venciendo en un combate epico y se terminó casando con Gastela
